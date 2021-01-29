@@ -1,0 +1,2 @@
+# Aprendizados da Semana
+Esta foi uma semana muito proveitosa. Conheci instrutores e **instrutoras incríveis**, tive contato com ferramentas que não conhecia e pude desenvolver as atividades solicitadas.
